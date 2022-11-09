@@ -1,4 +1,0 @@
-# patterns
-# patterns
-# patterns
-# patterns
